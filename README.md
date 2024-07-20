@@ -1,10 +1,6 @@
-I'm straight up JORKING it right now!
+thith endth NOW jethe. you jutht cant thand to thee thomeone elthe in the thpotlight,, can you?! you cant jutht let ANYONE elthe win... it thust driveth you crathy to thee thomeone elthe thuctheed,, doethn't it
 
-And by "it"..... Let's just say..
-
-My PEANITS!
+![Untitled201_20240719184826](https://github.com/user-attachments/assets/beb5178b-3645-4e64-ad89-3ed1d9c97a87)
 
 
-![d1dd4de1-01d1-4c13-98e2-f676f0f4771e (1)](https://github.com/whitetpoison/whitetpoison/assets/149275019/a0706315-3235-49d0-95ab-e7fd87a895c9)
-
-**skibidi reigen skibidi skibidi reigen skibidi reigen**
+good grief
