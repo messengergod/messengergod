@@ -1,4 +1,8 @@
-<h1 align="center"> NOW ENTERING : Bo0mToWn </h1> 
+# well, it's a little bit _dangerous_, my friend!
 
 
-![b2](https://github.com/user-attachments/assets/fd1c560b-0821-49ac-9cd9-2327adb5b347)
+
+  
+![b2](https://github.com/user-attachments/assets/306cd23b-82ca-47d5-a396-f42e74558b47)
+
+ic. tyler miles lockett
